@@ -3,9 +3,7 @@
 
 我将为您提供2026年马年的60句新年祝福语，包含中文、拼音，帮助您在节日中传递温暖与祝福，也帮助孩子们在双语学习中提升中文能力。
 
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第1张-泥人传说](https://nrcs.xyz/wp-content/uploads/2025/08/ORG-ads-1.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第1张-泥人传说")](https://aff01.c-box.vip/#/register?code=eTADcyOT "Orgorg速率最高可达1000Mbps，流畅观看Youtube 4K、TikTok，支持 Windows、Android、iOS、Mac，支持 微信、支付宝 付款！")
-
-[![2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音）](https://nrcs.xyz/wp-content/uploads/2026/01/1767494688713-019b86e4-4eb6-7d5b-9ff9-e9f1296e61cc.png "2026新年祝福语80句！给亲人朋友的马年祝福语（附拼音） 每日福利领取 第2张-泥人传说")](https://nrcs.xyz/wp-content/uploads/2026/01/1767494688713-019b86e4-4eb6-7d5b-9ff9-e9f1296e61cc.png)
+![2026马年新年祝福贺卡](./images/0008.png)
 
 ## 2026马年新年祝福语——四字、八字、十字（附汉语拼音）
 
