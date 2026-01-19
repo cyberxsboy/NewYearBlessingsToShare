@@ -209,7 +209,7 @@ May the Year of the Horse bring you happiness, success, and a smooth journey ahe
 中文：愿马年带给你幸福、成功和顺利的旅程。  
 拼音：Yuàn mǎ nián dài gěi nǐ xìng fú, chéng gōng hé shùn lì de lǚ chéng.
 
-[![](./images/0008.png)](https://www.xn--nly574e.biz/auth/register?code=zI7qvG2n)
+[![2026年高速节点线路](./images/0008.png)](https://www.xn--nly574e.biz/auth/register?code=zI7qvG2n)
 
 
 ## 2026马年创意有趣新年祝福语
